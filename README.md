@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Android**
 
-- 📫 How to reach me **avigoswami.ag@outlook.com**
+- 📫 How to reach me **codingforsure@gmail.com**
 
 - ⚡ Fun fact **I'm a Pro-grammer!**
 
